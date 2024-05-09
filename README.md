@@ -1,0 +1,1 @@
+# smzanaty.github.io
